@@ -5,9 +5,9 @@ I wanted to use Gardinski as username but it was already used, so don't blame me
 ## About me 🌝
 
 - 😵‍💫 What I do now: I’m currently working on too many random projects at the same time.
-- 📚 Career: Bachelor's degree in Computer Science and Engineering @ "Alma Mater Studiorum - Università di Bologna" 
-- 🍋 Yes, lemon tea
-- 100% italian 🇮🇹🤌🏻: pizza🍕, mandolino🎸, (I know... it's a guitar), spaghetti🍝
+- 📚 Career: Master's degree in Computer Science and Engineering @ "Alma Mater Studiorum - Università di Bologna" 
+- 🍋 Yes, I prefer lemon tea
+- 100% italian: pizza🍕, mandolino🎸, (I know... it's a guitar), spaghetti🍝
 - ⚡ Fun fact: I REALLY LOVE RACCOONS 🦝
 
 ## ✉️ Contact me if you want to chat or simply a new friend
